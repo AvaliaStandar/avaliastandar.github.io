@@ -1,0 +1,1 @@
+# avaliastandar.github.io
